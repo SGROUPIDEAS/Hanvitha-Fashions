@@ -1,5 +1,5 @@
 Hi Guys
-Welcome to Hanivitha Fashins
+Welcome to Hanvitha Fashions
 Thank you
 Visit Again
 Have a Good Day
